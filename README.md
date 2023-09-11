@@ -1,7 +1,7 @@
 # dainell-taiko-skin
-skin elements are not mine (mixed skin)
+## skin elements are not mine (mixed skin)
 
-[b][url=https://www.mediafire.com/file/ynofu0n1cei1hxp/-_%2523_%25E3%2580%2590dainell_taiko_skin%25E3%2580%2591.osk/file]download[/url][/b]
+[Download](https://www.mediafire.com/file/ynofu0n1cei1hxp/-_%2523_%25E3%2580%2590dainell_taiko_skin%25E3%2580%2591.osk/file)
 
 screenshots
 
